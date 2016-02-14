@@ -5,11 +5,9 @@ date: 2016-02-13
 ---
 
 Last night I attended a special Shabbat to remember a University of Miami student who passed away 3 years ago.
-Eitan had only walked this Earth for 18 years, yet in this time he made many friends and pursued writing and ceramics.
-I never met him, but the crowd of his fraternity brothers who gathered to honor this young man touched me. His
-grandmother told stories of her grandson's humor and kindness. His mother recited a poem, a prayer to God for her son,
-touching on the concepts of life and death. Her poem expressed so many emotions at once that the whole room hushed
-under the sway of voice. Grief, Confusion, Disbelief, Indignation, Frustration, Resignation. Finally, a tinge of hope.
+Eitan Samuel Stern-Robbins had only walked this Earth for 18 years, yet in this time he made many friends and pursued 
+writing and ceramics. I never met him, but the crowd of his fraternity brothers who gathered to honor this young man touched me. His grandmother told stories of her grandson's humor and kindness. His mother recited a poem, a prayer to God for her son, touching on the concepts of life and death. Her poem expressed so many emotions at once that the whole room hushed
+under the sway of voice. Grief. Confusion. Disbelief. Indignation. Frustration. Resignation. Finally, a tinge of Hope.
 Consolation - her son has now passed on to the eternal. 
 
 Then one fraternity brother came up and recited a poem called "The Dash", by Linda Ellis. The narrator of the poem 
