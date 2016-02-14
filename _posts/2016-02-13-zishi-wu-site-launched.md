@@ -17,8 +17,11 @@ it is the dash - how we spent our lives - that matters. The narrator calls on us
 each other with kindess. It ends with a thought-provoking statement: 
 
 "So, when your eulogy is being read,
+
  with your life’s actions to rehash…
+ 
  would you be proud of the things they say
+ 
  about how you spent YOUR dash?"
  
 Eitan's mother and grandmother also created a booklet containing some of writings. It was a rare experience to read
