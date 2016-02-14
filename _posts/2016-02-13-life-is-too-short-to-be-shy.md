@@ -16,8 +16,8 @@ Then one fraternity brother came up and told a story of how he shared a poem wit
 The poem, called "The Dash" by Linda Ellis, begins with the narrator viewing a gravestone with two dates signifying birth 
 and death, with a dash in the middle. The two dates matter not; it is the dash - how we spent our lives - that matters. The narrator calls on us to evaluate our lives and treat each other with kindess. It ends with a thought-provoking statement: 
 
-###*"So, when your eulogy is being read,*
-###*with your life’s actions to rehash...*
+####*"So, when your eulogy is being read,*
+####*with your life’s actions to rehash...*
 ####*would you be proud of the things they say*
 ####*about how you spent __YOUR DASH?__"*
  
