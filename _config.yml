@@ -1,4 +1,4 @@
-name: Zishi Wu, Artsy Explorer
+name: Zishi Wu, Explorer
 markdown: kramdown
 permalink: /blog/:year/:month/:day/:title
 collections: computer-architecture
