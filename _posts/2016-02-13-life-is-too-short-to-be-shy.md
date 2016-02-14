@@ -18,11 +18,11 @@ and death, with a dash in the middle. The two dates matter not; it is the dash -
 
 *"So, when your eulogy is being read,*
 
-* with your life’s actions to rehash...*
+*with your life’s actions to rehash...*
 
-* would you be proud of the things they say*
+*would you be proud of the things they say*
 
-* about how you spent __YOUR DASH?__"*
+*about how you spent __YOUR DASH?__"*
  
  
 Eitan's mother and grandmother created a booklet containing some of writings and passed them around the dinner 
