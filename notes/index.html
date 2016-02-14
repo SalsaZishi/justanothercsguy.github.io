@@ -6,6 +6,6 @@ title: Computer Architecture and Organization
   <ul class="computer-architecture-notes">
   
   {% for post in site.posts.notes %}
-    <li><span>{{ post.date | date_to_string }}</span> » <a href="{{ post.url }}" title="{{ post.title }}">{{ post.title }}</a></li>
+    <li><span><a href="{{ post.url }}" title="{{ post.title }}">{{ post.title }}</a></li>
   {% endfor %}
 </ul>
