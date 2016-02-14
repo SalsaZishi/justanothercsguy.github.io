@@ -12,3 +12,4 @@ who uses a computer, should try to learn Boolean Algebra.
 
 Here are the main identities (math jargon for building blocks) of Boolean Algebra: 
 
+![Sorry, your browser doesn't support this image](https://i0.wp.com/i16.photobucket.com/albums/b50/ejaz2006/Untitled-1-2.jpg "Boolean Algebra Identities Table")
