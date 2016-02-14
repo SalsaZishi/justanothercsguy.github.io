@@ -1,10 +1,10 @@
 ---
 layout: post
 title: "Life is Too Short to Be Shy"
-date: 2016-02-13
+date: 2016-02-14
 ---
 
-Last night I attended a special Shabbat to remember a University of Miami student who passed away 3 years ago.
+Two nights ago I attended a special Shabbat to remember a University of Miami student who passed away 3 years ago.
 
 Eitan Samuel Stern-Robbins had only walked this Earth for 18 years, yet in this time he made many friends and pursued 
 writing and ceramics. I never met him, but the crowd of his fraternity brothers who gathered to honor this young man touched me. His grandmother told stories of her grandson's humor and kindness. His mother recited a poem, a prayer to God for her son, touching on the concepts of life and death. Her poem expressed so many emotions at once that the whole room hushed
