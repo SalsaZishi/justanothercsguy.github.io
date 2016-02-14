@@ -17,15 +17,13 @@ it is the dash - how we spent our lives - that matters. The narrator calls on us
 each other with kindess. It ends with a thought-provoking statement: 
 
 "So, when your eulogy is being read,
-
- with your life’s actions to rehash…
- 
+ with your life’s actions to rehash...
  would you be proud of the things they say
- 
  about how you spent YOUR dash?"
  
-Eitan's mother and grandmother also created a booklet containing some of writings. It was a rare experience to read
-another person's writings. One excerpt stands out: 
+ 
+Eitan's mother and grandmother also created a booklet containing some of writings and passed them around the 
+dinner table. It was a rare experience to read another person's writings. One excerpt stands out: 
 
 "So the next time you walk by someone sitting alone, maybe try and go talk to them and form a new connection. 
  You never know, that person could be your new best friend or even your soul mate. Life's too short to be shy."
@@ -39,4 +37,4 @@ Countless lives have come before us, and countless will continue to come after u
 stories. Yet we should try as best as we can. There is so much we can do to make this world a better place. 
 To start, we can smile more towards others. Smiles cost nothing, yet they are one of the greatest gifts. To smile
 is to meet the eyes of another, unabashed, accepting them for who they are, and welcoming them into our world
-of shared creation.
+of shared creation. Shabbat Shalom!
