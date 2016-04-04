@@ -97,4 +97,13 @@ idea that colleges judge Asian applicants against high standards than their non-
 belief, but I don't concentrate on it anymore - I merely accept it as a part of life and move on. But April was a hectic 
 month: how my mind cried when it couldn't numb itself with dopamine from the abysms of the internet! It didn't help that 
 those around me had dates to the prom or that I had chances in the past but was too shy to act on them. I ultimately opted
-not to go and the next two months seemed like I was going nowhere. 
+not to go and the next two months seemed like I was going nowhere. I was about to graduate from high school with a full 
+scholarship to the University of Miami - many of my classmates would've killed for that. But I had high expectations and 
+felt cheated of my harvest. And on graduation day, seeing my 4 years had passed, and everyone outside had someone to embrace
+warmly and cheer with, I felt alone, like an empty shell. What had I sacrificed in those years that I could've spent doing
+something else? The scene was anti-climatic: my dad drove me home and I don't know what happened next.
+
+My addiction and I struggled back and forth, my friends incredulous that such a thing could be an addiction! I sought out 
+help in the form of reading and bought a copy of "Meditations" by Marcus Aurelius. During my trip to China, I began reading
+Marcus' journal and was amazed that a Roman emperor, surrounded by luxuries and strife, could so succintly advocate for a
+stoical life that only a monk could hope to achieve.
