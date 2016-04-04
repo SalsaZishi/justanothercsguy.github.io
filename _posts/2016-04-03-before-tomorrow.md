@@ -106,4 +106,21 @@ something else? The scene was anti-climatic: my dad drove me home and I don't kn
 My addiction and I struggled back and forth, my friends incredulous that such a thing could be an addiction! I sought out 
 help in the form of reading and bought a copy of "Meditations" by Marcus Aurelius. During my trip to China, I began reading
 Marcus' journal and was amazed that a Roman emperor, surrounded by luxuries and strife, could so succintly advocate for a
-stoical life that only a monk could hope to achieve.
+stoical life that only a monk could hope to achieve. This book inspired me to improve myself, battle my addiction, and plan 
+for my new persona in college. Some excerpts: 
+
+"You will give yourself relief, if you do every act of your life as if it were the last..."
+"Tranquility is nothing else than the good ordering of your mind."
+"Although these distractions (persuasions of sense/pleasure) seem to adapt themsevles to the better things in a small 
+degree, they in fact subjugate reason all at once and carry us away...if something is only useful to you as an animal, admit
+it."
+"Do not act as if you would live ten thousand years. Death looms over you. While you are alive, while it is in your power,
+be a good person."
+"How much time you will save if you stop worrying about what your neighbor is thinking or doing, but only make sure that 
+what you are thinking and doing is good."
+"Not that this is a misfortune, but that to bear it nobly is good fortune."
+"All is opinion."
+"You have the power over your own mind, not external events."
+"See how soon everything is forgotten, and look at the chaos of infinite time on each side of the present, and the emptiness
+of applause, and the fickleness and lack of judgment in those who pretend to give praise, and the narrowness of its domain,
+and be quiet at last."
