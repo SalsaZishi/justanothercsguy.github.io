@@ -110,17 +110,28 @@ stoical life that only a monk could hope to achieve. This book inspired me to im
 for my new persona in college. Some excerpts: 
 
 "You will give yourself relief, if you do every act of your life as if it were the last..."
+
 "Tranquility is nothing else than the good ordering of your mind."
+
 "Although these distractions (persuasions of sense/pleasure) seem to adapt themsevles to the better things in a small 
 degree, they in fact subjugate reason all at once and carry us away...if something is only useful to you as an animal, admit
 it."
+
 "Do not act as if you would live ten thousand years. Death looms over you. While you are alive, while it is in your power,
 be a good person."
+
 "How much time you will save if you stop worrying about what your neighbor is thinking or doing, but only make sure that 
 what you are thinking and doing is good."
+
 "Not that this is a misfortune, but that to bear it nobly is good fortune."
-"All is opinion."
+
+"All is opinion." (I interpret this as *1)* the world is constantly changing and *2)* Everyone has a different perspective 
+and no one holds absolute truth in their perspective)
+
 "You have the power over your own mind, not external events."
+
 "See how soon everything is forgotten, and look at the chaos of infinite time on each side of the present, and the emptiness
 of applause, and the fickleness and lack of judgment in those who pretend to give praise, and the narrowness of its domain,
 and be quiet at last."
+
+"We are made for cooperation, like hands, like feet, like eyelids, like the rows of the upper and lower teeth."
