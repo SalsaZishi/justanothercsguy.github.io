@@ -78,4 +78,23 @@ to proofread the essay or spend two months researching about a college so that I
 in this subject, minor in that subject, do research with Prof. X in the Y department, and run Z club. I applied to Stanford,
 Columbia, Cornell, UPenn, MIR, Rice, UMiami, UFlorida, and a few others. The prestige and non-freezing weather of Stanford,
 along with its world-renowned Computer Science department, allured me, but my chances were slim as its acceptance rate was 5%
+and I lacked the money/connections/extraordinary-talent that would get me in the door. Some might say here that I'm making 
+excuses, but damn, I really tried and busted my ass off in high school, and this day, when I reflect on it, *I HAVE NO IDEA
+WHY I DID IT.* The prestige or guaranteed good education/career seems like a mirage that I hopelessly chased. Well, I didn't
+get into Stanford. No problem, says I, Cornell has a 14% acceptance and Rice an 18% acceptance rate, and I clearly stand out
+more than their average candidate. 
 
+Life is funny. When I toured the University of Miami in my senior year, I thought to myself: "this is my last choice." I will
+only go if all the top 20 colleges I applied to reject me, and surely that won't happen. What did I learn? *Never say never!*
+
+On the night before my colleges would release their decisions, I found a TedTalk where the speaker discussed an addiction to 
+something I previously thought was innoculous. Imagine my surprise when I put two and two together and realized that I was an
+addict to something that most teenage males take as a given in our modern world of high speed internet connection. The next
+day, I found out I had been rejected by UPenn, Columbia, and Rice. Cornell only waitlisted me. 
+
+I believe I snapped. During the next month I battled by addiction and became very pessimistic, directing my thoughts to the
+idea that colleges judge Asian applicants against high standards than their non-Asian peers. To this day, I still hold this
+belief, but I don't concentrate on it anymore - I merely accept it as a part of life and move on. But April was a hectic 
+month: how my mind cried when it couldn't numb itself with dopamine from the abysms of the internet! It didn't help that 
+those around me had dates to the prom or that I had chances in the past but was too shy to act on them. I ultimately opted
+not to go and the next two months seemed like I was going nowhere. 
